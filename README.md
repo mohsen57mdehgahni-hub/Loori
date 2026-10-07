@@ -1,0 +1,1 @@
+In Iran, which has a 9,000-year-old civilization and culture, only one ethnic group has authenticity, identity, and pride. That is the great Lor ethnic group, which includes Bakhtiari, Mamsani, Boyer Ahmadi, Lorestani, and many other regions of Iran. 
